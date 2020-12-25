@@ -1,0 +1,1 @@
+![捐赠](alipay_qr.jpg)
